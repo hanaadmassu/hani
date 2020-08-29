@@ -1,1 +1,1 @@
-# hani
+Freedom is power
